@@ -2,8 +2,7 @@
 **AdamGoyer/adamgoyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 -->
-### 🌀 Subtle Energy & The Sublime. 
-### Traveling the world transmitting Gold into Love 💕 <br>
+### 🌀 Subtle Energy & The Sublime. Traveling the world transmitting Gold into Love 💕 <br>
 <br>
 - [X-Twitter](https://twitter.com/AdamGoyer)
 - [Blue Sky](https://bsky.app/profile/adamgoyer.bsky.social)
