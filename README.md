@@ -6,9 +6,9 @@
 ### Traveling the world transmitting Gold into Love 💕 <br>
 <br>
 [X-Twitter](https://twitter.com/AdamGoyer)
-[Blue Sky](https://bsky.app/profile/adamgoyer.bsky.social) <br>
-[Linkedin](https://www.linkedin.com/in/adamgoyer) <br>
-[Instagram](https://www.instagram.com/adamgoyer) <br>
+[Blue Sky](https://bsky.app/profile/adamgoyer.bsky.social)
+[Linkedin](https://www.linkedin.com/in/adamgoyer)
+[Instagram](https://www.instagram.com/adamgoyer)
 
 - 🔭 I’m currently working on [plex](https://github.com/labdao/plex) @ [Labdao](https://github.com/labdao)
 - 🌱 I’m learning Data-Science and Bio-Informatics.
