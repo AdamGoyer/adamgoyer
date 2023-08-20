@@ -3,7 +3,6 @@
 
 -->
 🌀 Subtle Energy & The Sublime. Traveling the world transmitting Gold into Love 💕 <br>
-<br>
 🔭 I’m currently working on [plex](https://github.com/labdao/plex) @ [Labdao](https://github.com/labdao) <br>
 🌱 I’m learning Data-Science and Bio-Informatics. <br>
 🧬 I’m looking to collaborate on genetic sequencing and annotation of plants or fungi <br>
