@@ -3,7 +3,8 @@
 
 Here are some ideas to get you started:
 -->
-### 🌀 Subtle Energy & The Sublime. Traveling the world transmitting Gold into Love 💕 <br>
+### 🌀 Subtle Energy & The Sublime. 
+### Traveling the world transmitting Gold into Love 💕 <br>
 <br>
 - [X-Twitter](https://twitter.com/AdamGoyer) <br>
 - [Blue Sky](https://bsky.app/profile/adamgoyer.bsky.social) <br>
