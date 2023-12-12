@@ -10,3 +10,4 @@
 [Linkedin](https://www.linkedin.com/in/adamgoyer) <br>
 [Instagram](https://www.instagram.com/adamgoyer) <br>
 
+I'm currently working on quant trading on coinbase.
