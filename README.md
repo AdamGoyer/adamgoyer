@@ -3,7 +3,8 @@
 
 -->
 🔭 Data Scientist, Bio-Informatics, and studying for the Chartered Financial Analyst L1 <br>
-🌀 Subtle Energy & The Sublime. Traveling the world transmitting Gold into Love 💕 <br>
+🌀 Subtle Energy & The Sublime. 
+✈️ Traveling the world transmuting Gold into Love, with my Wife and Son 💕. <br>
 🌱 Gardening and Horticulturalist <br>
 <br>
 [X-Twitter](https://twitter.com/AdamGoyer) <br>
