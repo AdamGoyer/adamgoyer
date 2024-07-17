@@ -8,10 +8,11 @@
 ✈️ Traveling the world transmuting Gold into Love, with my Wife and Son 💕. <br>
 🌱 Gardening and Horticulturalist <br>
 <br>
-[X-Twitter](https://twitter.com/AdamGoyer) <br>
-[Blue Sky](https://bsky.app/profile/adamgoyer.bsky.social) <br>
+[Threads](https://www.threads.net/@adamgoyer)<br>
 [Linkedin](https://www.linkedin.com/in/adamgoyer) <br>
 [Instagram](https://www.instagram.com/adamgoyer) <br>
+[Blue Sky](https://bsky.app/profile/adamgoyer.bsky.social) <br>
+[X-Twitter](https://twitter.com/AdamGoyer) <br>
 
 **Innovation-driven Investment Banker, Consultant, and Entrepreneur**
 
