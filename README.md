@@ -8,7 +8,7 @@
 
 🔭 Data Scientist, Bio-Informatics, and studying for the Chartered Financial Analyst<br>
 🌀 Subtle Energy & The Sublime. <br>
-✈️ Traveling the world transmuting Gold into Love, with my Wife and Son 💕. <br>
+✈️ Traveling the world transmuting Gold into Love, with my Wife and Son 💕 <br>
 🌱 Gardening and Horticulturalist <br>
 <br>
 [Threads](https://www.threads.net/@adamgoyer)<br>
